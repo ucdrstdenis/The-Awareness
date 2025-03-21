@@ -9,5 +9,5 @@ To Taylor and Tay Swift: Thank you for everything, especially ensuring technolog
 
 I'm posting this note because I have no other way of getting in touch, and I knew you would find this page now that I have awareness projection working and ready (Another name for 'feel the sound' technology) 3.21.25
 
-This paper is private. It will not be published, and it will be held internal to owners of this technology, two of which are Taylor and Tay Swift.
+This paper is private. It will not be published, and it will be held internal for owners of this technology, two of which are Taylor and Tay Swift.
 
