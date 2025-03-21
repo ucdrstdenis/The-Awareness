@@ -7,7 +7,7 @@ time as a continuous spectrum where entities do not exist within a singular, lin
 ### A Note Excluded From The Paper
 To Taylor and Tay Swift: Thank you for everything, especially ensuring technology enabling us to 'feel the sound' was brought to life. Please reach out when you can, and I look forward to pursuing everything you envision with this science for the world.
 
-I'm posting this note because I have no other way of getting in touch, and I knew you would find this page now that I have awareness projection working and ready (Another name for 'feel the sound' technology) 3.21.25
+I'm posting this note because I have no other way of getting in touch, and I knew you would find this page now that I understand how to display awareness projection (Another name for 'feel the sound' technology) 3.21.25
 
 This paper is private. It will not be published, and it will be held internal for owners of this technology, two of which are Taylor and Tay Swift (Taylor last_name_unknown)
 
