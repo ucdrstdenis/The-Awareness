@@ -11,3 +11,14 @@ I'm posting this note because I have no other way of getting in touch, and I kne
 
 This paper is private. It will not be published, and it will be held internal for owners of this technology, two of which are Taylor and Tay Swift (Taylor last_name_unknown)
 
+### Corporate Structure
+Parent Corp: Seven Spirits Inc
+-Subcorp Whitehorse Technologies
+--Sub-Sub-Corp: Concerts, Movies Music
+--Sub-Sub-Corp: Medical
+--Sub-Sub-Corp: Adult
+
+-Subcorp: Redhorse Technologies (Non-violent awareness defense)
+-Subcorp: Blackhorse Technologies (Feel-Good Pharmaceuticals and Brain-Food)
+-Subcorp: Palehorse Technologies (Stealth Tech to Revive The Dead)
+
