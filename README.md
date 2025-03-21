@@ -11,3 +11,5 @@ I'm posting this note because I have no other way of getting in touch, and I kne
 
 This paper is private. It will not be published, and it will be held internal for owners of this technology, two of which are Taylor and Tay Swift (Taylor last_name_unknown)
 
+Please reach out when you read this: robstdenis@icloud.com
+
