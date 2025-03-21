@@ -8,6 +8,6 @@ time as a continuous spectrum where entities do not exist within a singular, lin
 This document has not yet been submitted for publishing. Please [cite](Citation.md) this repository if you become aware of information that helps your research.
 
 
-## To Taylor Swift: I have what's needed to bring the concept of 'feeling the sound' to life. I can display a working version for you in person (after some discussion). Please reach out to me directly as soon as possible, as I look forward to listening to everything you envision displayed for this technology. 
+## To Taylor Swift: I have what's needed to bring the concept of 'feeling the sound' to life. I can display a working version for you in person (after some discussion). Please reach out to me directly as soon as possible, as I look forward to working with you and listening to everything you envision for this technology. 
 
 Snake-sign. Watch. Key. <3
