@@ -14,17 +14,17 @@ This paper is private. It will not be published, and it will be held internal fo
 ### Corporate Structure
 Parent Corp: Seven Spirits Inc
 
--Subcorp Whitehorse Technologies
+Subcorp Whitehorse Technologies
 
---Sub-Sub-Corp: Concerts, Movies Music
+Sub-Sub-Corp: Concerts, Movies Music
 
---Sub-Sub-Corp: Medical
+Sub-Sub-Corp: Medical
 
---Sub-Sub-Corp: Adult
+Sub-Sub-Corp: Adult
 
--Subcorp: Redhorse Technologies (Non-violent awareness defense)
+Subcorp: Redhorse Technologies (Non-violent awareness defense technology)
 
--Subcorp: Blackhorse Technologies (Feel-Good Pharmaceuticals and Brain-Food)
+Subcorp: Blackhorse Technologies (Feel-Good Pharmaceuticals and Brain-Food)
 
--Subcorp: Palehorse Technologies (Stealth Tech to Revive The Dead)
+Subcorp: Palehorse Technologies (Awareness Technology to Revive The Dead)
 
