@@ -28,4 +28,4 @@ Subcorp: Blackhorse Technologies (Feel-Good Pharmaceuticals and Brain-Food)
 
 Subcorp: Palehorse Technologies (Awareness Technology to Revive The Dead)
 
-The entire structure to be incorporated out of Las Vegas, Nevada
+Entire structure to be incorporated out of Las Vegas, Nevada
