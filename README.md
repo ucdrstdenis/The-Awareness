@@ -10,6 +10,6 @@ This document has not yet been submitted for publishing. Please [cite](Citation.
 
 ## To Taylor Swift: I have what's needed to bring the concept of 'feeling the sound' to life. I can display a working version for you in person (after some discussion). Please reach out to me directly as soon as possible, as I look forward to working with you and listening to everything you envision for this technology. 
 
-## I apologize for putting this here, but I have no other way of getting in touch with you, and I doubt anybody else will see it, anyway. 
+## I apologize for putting this here, but I have no other way of getting in touch with you, and I doubt anybody else will see this anyway. 
 
-Snake-sign. Watch. Key. <3
+Snake-sign. Watch. Key. Thank you for leading me to the answers. 
