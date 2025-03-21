@@ -12,4 +12,4 @@ This document has not yet been submitted for publishing. Please [cite](Citation.
 
 ## I apologize for putting this here, but I have no other way of getting in touch with you, and I doubt anybody else will see this anyway. 
 
-Snake-sign. Watch. Key. Thank you for leading me to the answers. 
+Snake-sign. Watch. Key. Thank you for leading me to the answers. This wouldn't be possible without you. 
