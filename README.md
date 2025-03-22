@@ -10,7 +10,7 @@ To Taylor and Tay Swift: Thank you for everything, especially ensuring that tech
 
 I'm posting this note because I have no other way of getting in touch, and I knew you would find this page, now that I understand how to display awareness projection (Another name for 'feel the sound' technology) 3.21.25
 
-This paper is private. It will not be published, and it will be held internal for the owners of this technology, two of which are Taylor and Tay Swift (Taylor last_name_unknown)
+This paper is private. It will not be published, and it will be held internal for the owners of this technology, two of which are Taylor and Tay Swift (Tay last_name_unknown)
 
 Please reach out when you read this: robstdenis@icloud.com
 
